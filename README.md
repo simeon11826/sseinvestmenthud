@@ -1,0 +1,1 @@
+In order to buy shares in SSE you need to open an account with a trading platform. We work with a wide number of trading platforms (see below), and you can choose the one which is right for you. You will need to provide ID and bank account information to open a trading account.
